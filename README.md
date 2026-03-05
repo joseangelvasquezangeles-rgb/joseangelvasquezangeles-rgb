@@ -1,6 +1,6 @@
 # 👋 Hola, soy José Ángel Vásquez Ángeles
 
-🎯 Analista de Datos en formación | 📊 Apasionado por los datos | 🚀 Emprendedor
+🎯 Analista de Datos en formación | 📊 Economista | 🚀 Emprendedor
 
 ---
 
